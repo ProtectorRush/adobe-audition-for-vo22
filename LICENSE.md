@@ -1,4 +1,4 @@
-
+Adobe Audition for macOS exclusive Overlay: shortcut-customization & batch-rendering offers the most advanced Adobe Audition for macOS overlay, with shortcut-customization and
 
 
 
